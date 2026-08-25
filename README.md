@@ -2,4 +2,4 @@
 
 <p align="right">
 
-${{\color{#c9a7ff}ㅤㅤㅤㅤI like when we kiss with a tongue + ω + }}$
+${{\color{#c9a7ff}ㅤㅤㅤㅤIㅤlike ㅤwhenㅤ weㅤ kiss ㅤwithㅤ aㅤ tongue ㅤ+ ω + }}$
