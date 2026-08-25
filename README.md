@@ -1,5 +1,9 @@
 <img src="./ezgif-63489f8a9440457f.gif" align="left" width="500">
 
-<div align="right">
-  <span style="color:#BA90F9;">kitt or cup</span>
-</div>
+<p align="right">
+
+$${\color{#BA90F9}\text{meow}}$$
+
+$${\color{#F4E5F7}\text{purrs}}$$
+
+</p>
