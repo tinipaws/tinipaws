@@ -17,7 +17,7 @@ $${\color{#F4E5F7}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ�
 <details>
 <summary>cℓickㅤ ƚ𑄝ㅤ აee ㅤinf𑄝აㅤ αb𑄝υƚㅤme</summary>
 
-boo
+my nαme iა kiƚƚ 𑄝r cuρ 
 
 </details>
 
