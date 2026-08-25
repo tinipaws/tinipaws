@@ -4,6 +4,6 @@
 
 $${\color{#BA90F9}\text{ oh my ℓiƚƚℓe bαby boy ! }}$$
 
-$${\color{#F4E5F7}\text{purrs}}$$
+$${\color{#F4E5F7}\text{my boy, my joy ˶ᵔ ⩊ ᵔ˶}}$$
 
 </p>
