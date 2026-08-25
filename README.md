@@ -4,6 +4,6 @@
 
 $${\color{#ff8acb}\text{test blbl}}$$
 
-$${\color{#c9a7ff}\tex{nyan}}$$
+$${\color{#c9a7ff}\text{nyan}}$$
 
 </p>
