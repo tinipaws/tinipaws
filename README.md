@@ -6,6 +6,6 @@
 
 <p align="right">
 
-</div>
-
 $${\color{#c9a7ff}\text{ㅤㅤㅤㅤcαℓℓ me kіƚƚ or cu⍴}}$$
+
+</div>
