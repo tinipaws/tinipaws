@@ -15,7 +15,7 @@ $${\color{#F4E5F7}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ�
 <div align="left">
 
 <details>
-<summary>cℓickㅤ ƚ𑄝ㅤ აee ㅤinf𑄝აㅤ αb𑄝υƚㅤㅤme</summary>
+<summary>cℓickㅤ ƚ𑄝ㅤ აee ㅤinf𑄝აㅤ αb𑄝υƚㅤme</summary>
 
 boo
 
