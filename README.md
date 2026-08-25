@@ -1,4 +1,4 @@
-<img src="./ezgif-63489f8a9440457f.gif" align="left" width="400">
+<img src="./ezgif-63489f8a9440457f.gif" align="left" width="450">
 
 <p align="right">
 
