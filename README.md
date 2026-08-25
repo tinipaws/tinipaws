@@ -27,7 +27,7 @@ $${\color{#7167EA}\text{myㅤ𑄝ℓdㅤυაerㅤաαა cυρfeƚƚii~~ㅤㅤ}
 
 </div>
 
-<p align="center">
+<p align="left">
   <a href="cupfettii.atabook.org">
     <img src="Sans titre 241_20260826005558.png" width="150">
   </a>
