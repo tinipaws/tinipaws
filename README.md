@@ -12,6 +12,7 @@ $${\color{#F4E5F7}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ�
 
 </div>
 
+<p align="right">
 <details>
-    <summary>DNI</summary>
+    <summary>info</summary>
     <br>
