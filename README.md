@@ -2,6 +2,6 @@
 
 <p align="right">
 
-$${\color{#c9a7ff}\text{ㅤㅤㅤㅤcαℓℓ me kіƚƚ or cu⍴}}$$
+$${\color{#c9a7ff}\text{ㅤㅤㅤㅤcαℓℓ ㅤme ㅤkіƚƚㅤ orㅤ cu⍴}}$$
 
 </div>
