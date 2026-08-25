@@ -5,7 +5,6 @@
 $${\color{#C4E0FF}\text{nyαn ㅤiაㅤ α ㅤcuƚe ㅤℓiƚƚℓe ㅤchυdㅤ ꜝ}}$$
 
 $${\color{#9D99F8}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ˶}}$$
-
 </p>
 ㅤ<img src="Sans titre 239_20260825223613.png" width="290" align="right">
 
