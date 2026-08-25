@@ -4,7 +4,8 @@
 
 $${\color{#C4E0FF}\text{nyαn ㅤiაㅤ α ㅤfαƚ ㅤℓiƚƚℓe ㅤchυdㅤ}}$$
 
-$${\color{#9D99F8}\text{ㅤi ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ˶}}$$
+$${\color{#9D99F8}\text{ㅤ
+i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ˶}}$$
 ㅤ<img src="Sans titre 239_20260825223613.png" width="270" align="center">
 
 </div>
