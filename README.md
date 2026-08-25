@@ -2,11 +2,4 @@
 
 <p align="right">
 
-$${\color{#ff8acb}\text{test grrrrr}}$$
-
-$${\color{#c9a7ff}\text{nyan}}$$
-
-</p>
-
-
 ${{\color{#c9a7ff}test}}$
