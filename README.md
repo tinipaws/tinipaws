@@ -2,7 +2,7 @@
 
 <p align="right">
 
-$${\color{#BA90F9}\text{cαƚchㅤ my heαrƚ,ㅤcα-cα-cαƚchㅤmyㅤheαrƚ,ㅤᑲᥲᑲy! }}$$
+$${\color{#BA90F9}\text{cαƚchㅤ oh my ℓiƚƚℓe bαby boy ! }}$$
 
 $${\color{#F4E5F7}\text{purrs}}$$
 
