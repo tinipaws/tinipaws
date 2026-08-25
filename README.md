@@ -12,7 +12,7 @@ $${\color{#F4E5F7}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ�
 
 </div>
 
-<div align="right">
+<div align="left">
 
 <details>
 <summary>test</summary>
