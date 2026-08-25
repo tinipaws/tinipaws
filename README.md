@@ -29,6 +29,11 @@ $${\color{#7167EA}\text{myㅤ𑄝ℓdㅤυაerㅤաαა cυρfeƚƚii~~ㅤㅤ}
 
 <p align="center">
   <a href="cupfettii.atabook.org">
-    <img src="Sans titre 241_20260826005558.png" width="100">
+    <img src="Sans titre 241_20260826005558.png" width="150">
+  </a>
+</p>
+<p align="right">
+  <a href="https://tinipaws.straw.page">
+    <img src="Sans titre 241_20260826005558.png" width="150">
   </a>
 </p>
