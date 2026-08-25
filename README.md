@@ -2,10 +2,6 @@
 
 <p align="right">
 
-<img src="./image.gif" align="left" width="200">
-
-<p align="right">
-
 $${\color{#c9a7ff}\text{ㅤㅤㅤㅤcαℓℓ me kіƚƚ or cu⍴}}$$
 
 </div>
