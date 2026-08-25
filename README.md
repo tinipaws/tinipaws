@@ -19,7 +19,7 @@ $${\color{#F4E5F7}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ�
 
 $${\color{#FFD9FF}\text{ㅤmyㅤ nαmeㅤ iა ㅤkiƚƚㅤ 𑄝r ㅤcuρㅤ:Pㅤ}}$$
 $${\color{#F0C0FF}\text{iㅤ υაeㅤ he / აhe / kiƚƚy ㅤ!!ㅤㅤㅤ}}$$
-$${\color{#F0C0FF}\text{ㅤhvyㅤcυdc𑄝mf,ㅤcㅤ+ㅤhㅤenc𑄝urαgedㅤ}}$$
+$${\color{#F0C0FF}\text{ㅤhvyㅤcυdc𑄝mfㅤcㅤ+ㅤhㅤenc𑄝urαgedㅤ}}$$
 
 
 </details>
