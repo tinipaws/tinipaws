@@ -2,7 +2,7 @@
 
 <p align="right">
 
-$${\color{#BA90F9}\text{meow}}$$
+$${\color{#BA90F9}\text{ㅤㅤㅤㅤcαℓℓ me kіƚƚ or cu⍴}}$$
 
 $${\color{#F4E5F7}\text{purrs}}$$
 
