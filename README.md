@@ -7,3 +7,6 @@ $${\color{#ff8acb}\text{test grrrrr}}$$
 $${\color{#c9a7ff}\text{nyan}}$$
 
 </p>
+
+
+$${\color{#ff8acb}\mathit{text}}$$
