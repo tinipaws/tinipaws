@@ -4,7 +4,7 @@
 
 $${\color{#C4E0FF}\text{uაer ㅤcuƚe ㅤℓiƚƚℓe ㅤchυdㅤ ꜝ}}$$
 
-$${\color{#F4E5F7}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ˶}}$$
+$${\color{#9D99F8}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ˶}}$$
 
 </p>
 
