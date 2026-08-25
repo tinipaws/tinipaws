@@ -2,8 +2,8 @@
 
 <p align="right">
 
-$${\color{#BA90F9}\text{ohㅤ myㅤ ℓiƚƚℓe ㅤbαby ㅤb𑄝yㅤ ꜝ }}$$
+$${\color{#BA90F9}\text{ uაer ㅤcuƚe ㅤℓiƚƚℓe chυdㅤ ꜝ }}$$
 
-$${\color{#F4E5F7}\text{my ㅤb𑄝y,ㅤ myㅤ j𑄝yㅤ ˶ᵔ ⩊ ᵔ˶}}$$
+$${\color{#F4E5F7}\text{ i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤᵔ ⩊ ᵔ˶}}$$
 
 </p>
