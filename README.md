@@ -20,7 +20,7 @@ $${\color{#FFD9FF}\text{ㅤmyㅤ nαmeㅤ iა ㅤkiƚƚㅤ 𑄝r ㅤcuρㅤ:P�
 $${\color{#F0C0FF}\text{iㅤυაeㅤ he / აhe / kiƚƚy ㅤ!!ㅤㅤㅤ}}$$
 $${\color{#D79FFF}\text{hvyㅤcυdc𑄝mf,ㅤcㅤ+ㅤhㅤfreeℓyㅤㅤ}}$$
 $${\color{#A97EFF}\text{dαrk,ㅤρr𑄝ㅤαndㅤmυℓƚiㅤაhiρρer ♡ㅤ }}$$
-$${\color{#7167EA}\text{myㅤ𑄝ℓdㅤυაerㅤաαა cυρfeƚƚii~~ㅤㅤ}}$$
+$${\color{#7167EA}\text{myㅤ𑄝ℓdㅤυაerㅤաαა cυρfeƚƚiiㅤㅤ}}$$
 
 </details>
 
