@@ -8,7 +8,7 @@ $${\color{#9D99F8}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ�
 
 </p>
 
-<img src="./Sans titre 239_20260825223613.png" width="300">
+<img src="Sans titre 239_20260825223613.png" width="250" align="right">
 
 </div>
 
