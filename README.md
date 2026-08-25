@@ -2,6 +2,4 @@
 
 <p align="right">
 
-$${\color{#c9a7ff}\text{ㅤㅤㅤㅤkіƚƚㅤ ᵒʳㅤ cu⍴}}$$
-
-</div>
+<span style="color:#c9a7ff">kіƚƚ</span> <span style="color:#F4E5F7">ᵒʳ</span> <span style="color:#BA90F9">cu⍴</span>
