@@ -2,4 +2,10 @@
 
 <p align="right">
 
-${{\color{#c9a7ff}ㅤㅤㅤㅤcαℓℓ me kіƚƚ or cu⍴}}$
+<img src="./image.gif" align="left" width="200">
+
+<p align="right">
+
+$${\color{#c9a7ff}\text{cαℓℓ me kіƚƚ or cu⍴}}$$
+
+$${\color{#c9a7ff}\text{test}}$$
