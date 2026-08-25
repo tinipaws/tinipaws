@@ -1,1 +1,1 @@
-<img src="./ezgif-63489f8a9440457f.gif" align="left" width="200">
+<img src="./ezgif-63489f8a9440457f.gif" align="left" width="1000">
