@@ -7,4 +7,4 @@ $${\color{#BA90F9}\text{uაer ㅤcuƚe ㅤℓiƚƚℓe ㅤchυdㅤ ꜝ }}$$
 $${\color{#F4E5F7}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤᵔ ⩊ ᵔ˶}}$$
 
 </p>
-<img src="./Sans titre 239_20260825223613.png" align="left" width="250">
+<img src="./Sans titre 239_20260825223613.png" align="right" width="250">
