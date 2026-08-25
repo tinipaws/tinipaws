@@ -29,6 +29,6 @@ $${\color{#7167EA}\text{myㅤ𑄝ℓdㅤυაerㅤաαა cυρfeƚƚii~~ㅤㅤ}
 
 <p align="center">
   <a href="cupfettii.atabook.org">
-    <img src="Sans titre 241_20260826005558.png" alt="Atabook">
+    <img src="Sans titre 241_20260826005558.png" width="100">
   </a>
 </p>
