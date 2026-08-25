@@ -1,6 +1,6 @@
 <img src="./ezgif-63489f8a9440457f.gif" align="left" width="450">
 
-<p align="middle">
+<p align="center">
 
 $${\color{#C4E0FF}\text{uაer ㅤcuƚe ㅤℓiƚƚℓe ㅤchυdㅤ ꜝ}}$$
 
