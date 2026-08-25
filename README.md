@@ -9,4 +9,4 @@ $${\color{#c9a7ff}\text{nyan}}$$
 </p>
 
 
-$${\color{#ff8acb}\mathit{text}}$$
+${{\color{#c9a7ff}test}}$
