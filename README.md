@@ -18,7 +18,7 @@ $${\color{#F4E5F7}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ�
 <summary>cℓickㅤ ƚ𑄝ㅤ აee ㅤm𑄝re ㅤinf𑄝აㅤㅤ</summary>
 
 $${\color{#FFD9FF}\text{ㅤmyㅤ nαmeㅤ iა ㅤkiƚƚㅤ 𑄝r ㅤcuρㅤ:P}}$$
-$${\color{#F0C0FF}\text{ㅤ ㅤㅤiㅤ υაeㅤ he / აhe / kiƚƚy ㅤ!!}}$$
+$${\color{#F0C0FF}\text{ㅤㅤiㅤ υაeㅤ he / აhe / kiƚƚy ㅤ!!}}$$
 
 
 </details>
