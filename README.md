@@ -1,2 +1,2 @@
-<img src="./ezgif-63489f8a9440457f.gif" align="left" width="1000">
+<img src="./ezgif-63489f8a9440457f.gif" align="left" width="700">
 
