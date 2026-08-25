@@ -10,12 +10,9 @@ $${\color{#9D99F8}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ�
 
 <img src="Sans titre 239_20260825223613.png" width="250" align="right">
 
-
-
-
 </div>
 
-<div align="right">
+<div align="center">
 
 <details>
 <summary>cℓickㅤ ƚ𑄝ㅤ აee ㅤm𑄝re ㅤinf𑄝აㅤㅤ</summary>
