@@ -2,7 +2,7 @@
 
 <p align="right">
 
-$${\color{#BA90F9}\text{catch my heart, ca-ca-catch my heart,baby! }}$$
+$${\color{#BA90F9}\text{cαƚch my heαrƚ, cα-cα-cαƚch my heαrƚ,ᑲᥲᑲy! }}$$
 
 $${\color{#F4E5F7}\text{purrs}}$$
 
