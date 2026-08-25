@@ -2,8 +2,8 @@
 
 <p align="right">
 
-$${\color{#BA90F9}\text{ oh my ℓiƚƚℓe bαby boy ! }}$$
+$${\color{#BA90F9}\text{ ohㅤ myㅤ ℓiƚƚℓe ㅤbαby ㅤboy ! }}$$
 
-$${\color{#F4E5F7}\text{my boy, my joy ˶ᵔ ⩊ ᵔ˶}}$$
+$${\color{#F4E5F7}\text{my ㅤboy,ㅤ myㅤ joyㅤ ˶ᵔ ⩊ ᵔ˶}}$$
 
 </p>
