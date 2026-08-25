@@ -2,7 +2,7 @@
 
 <p align="center">
 
-$${\color{#C4E0FF}\text{uაer ㅤcuƚe ㅤℓiƚƚℓe ㅤchυdㅤ ꜝ}}$$
+$${\color{#C4E0FF}\text{nyαn ㅤiაㅤ α ㅤcuƚe ㅤℓiƚƚℓe ㅤchυdㅤ ꜝ}}$$
 
 $${\color{#9D99F8}\text{i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ˶}}$$
 
