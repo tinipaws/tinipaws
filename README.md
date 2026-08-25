@@ -6,6 +6,6 @@
 
 <p align="right">
 
-$${\color{#c9a7ff}\text{cαℓℓ me kіƚƚ or cu⍴}}$$
+$${\color{#c9a7ff}{cαℓℓ me kіƚƚ or cu⍴}}$$
 
 $${\color{#c9a7ff}\text{test}}$$
