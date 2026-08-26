@@ -15,10 +15,10 @@ $${\color{#9D99F8}\text{ㅤㅤi ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ �
 <summary>ㅤcℓickㅤ ƚ𑄝ㅤ აee ㅤm𑄝re ㅤinf𑄝აㅤㅤ</summary>
 
 $${\color{#FFD9FF}\text{ㅤmyㅤ nαmeㅤ iა ㅤkiƚƚㅤ 𑄝r ㅤcuρㅤ:Pㅤ}}$$
-$${\color{#F0C0FF}\text{iㅤυაeㅤ he / აhe / kiƚƚy ㅤ!!ㅤㅤㅤ}}$$
 $${\color{#D79FFF}\text{hvyㅤcυdc𑄝mf,ㅤcㅤ+ㅤhㅤfreeℓyㅤㅤ}}$$
 $${\color{#A97EFF}\text{dαrk,ㅤρr𑄝ㅤαndㅤmυℓƚiㅤაhiρρer ♡ㅤ }}$$
 $${\color{#7167EA}\text{myㅤ𑄝ℓdㅤυაerㅤաαა cυρfeƚƚiiㅤㅤ}}$$
+$${\color{#F0C0FF}\text{ㅤiㅤυაeㅤ he / აhe / kiƚƚy ㅤ!!ㅤㅤ}}$$
 
 </details>
 
