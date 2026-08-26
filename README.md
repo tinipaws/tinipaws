@@ -6,7 +6,7 @@ $${\color{#C4E0FF}\text{nyαn ㅤiაㅤ α ㅤfαƚ ㅤℓiƚƚℓe ㅤchυdㅤ
 
 $${\color{#9D99F8}\text{ㅤ
 i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ˶}}$$
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="Sans titre 239_20260825223613.png" width="275" align="center">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="Sans titre 239_20260825223613.png" width="275" align="center">
 
 </div>
 
