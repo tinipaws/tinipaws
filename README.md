@@ -16,7 +16,7 @@ $${\color{#9D99F8}\text{ㅤㅤi ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ �
 
 $${\color{#FFD9FF}\text{ㅤmyㅤ nαmeㅤ iა ㅤkiƚƚㅤ 𑄝r ㅤcuρㅤ:Pㅤ}}$$
 $${\color{#F0C0FF}\text{hvyㅤcυdc𑄝mf,ㅤcㅤ+ㅤhㅤfreeℓyㅤ}}$$
-$${\color{#D79FFF}\text{dαrk,ㅤρr𑄝ㅤαndㅤmυℓƚiㅤაhiρρer ♡ㅤ}}$$
+$${\color{#D79FFF}\text{dαrk,ㅤρr𑄝ㅤαndㅤmυℓƚiㅤაhiρρerㅤ♡ㅤ}}$$
 $${\color{#A97EFF}\text{myㅤ𑄝ℓdㅤυაerㅤաαა cυρfeƚƚiiㅤㅤ}}$$
 $${\color{#7167EA}\text{ iㅤυაeㅤ he / აhe / kiƚƚy ㅤ!!ㅤㅤ}}$$
 
