@@ -10,7 +10,7 @@ i ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ˶}}$$
 
 </div>
 
-<div align="right">
+<div align="center">
 
 <details>
 <summary>ㅤcℓickㅤ ƚ𑄝ㅤ აee ㅤm𑄝re ㅤinf𑄝აㅤㅤ</summary>
